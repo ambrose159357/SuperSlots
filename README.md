@@ -1,0 +1,2 @@
+# SuperSlots
+Privacy Poilcy
